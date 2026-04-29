@@ -7,7 +7,7 @@
   --
     Mobile & Whatsapp: (+216) 25-331-156
     
-    LinkedIn: https://www.linkedin.com/in/chadou-mohamed-ali/
+    LinkedIn: [https://www.linkedin.com/in/chadou-mohamed-ali/](https://www.linkedin.com/in/mohamed-ali-chadou/)
     
     GitHub: https://github.com/ChadouMohamedAli
     
