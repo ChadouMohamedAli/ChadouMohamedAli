@@ -5,7 +5,7 @@
 - 📫 How to reach me: 
   Chadou Mohamed Ali
   --
-    Mobile & Whatsapp: (+216) 25-113-356
+    Mobile & Whatsapp: (+216) 25-331-156
     
     LinkedIn: https://www.linkedin.com/in/chadou-mohamed-ali/
     
@@ -13,7 +13,7 @@
     
     Stackoverflow: https://stackoverflow.com/users/16458662/chadou-mohamed-ali
     
-    Mail: dalix2010dalix@gmail.com
+    Mail: mohamed_ali_chadou@outlook.fr - dalix2010dalix@gmail.com
     
   --
 
